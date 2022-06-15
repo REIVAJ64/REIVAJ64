@@ -1,6 +1,6 @@
 [![descarga-1.jpg](https://i.postimg.cc/MKzZMDgb/descarga-1.jpg)](https://postimg.cc/23XNg4kV)
 # Hello, I am Kevin Cáceres :skull_and_crossbones:
-### :man_technologist:Higher Technology Ttudent in Networks and Telecommunications 🔰ESPE🔰
+### :man_technologist:Higher Technology Student in Networks and Telecommunications 🔰ESPE🔰
 ### I love the universe :man_astronaut:
 ### :large_blue_circle::red_circle: Marea Roja :red_circle::large_blue_circle:
 ### :mag: Where can you find me 
