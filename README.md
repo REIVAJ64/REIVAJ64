@@ -3,7 +3,7 @@
 ### :man_technologist:Estudiante en Tecnologia Superior en Redes y Telecomunicaciones 🔰ESPE🔰
 ### Me fascina el espacio :man_astronaut:
 ### :large_blue_circle::red_circle: Marea Roja :red_circle::large_blue_circle:
-### Donde me puedes encontrar
+### :mag: Donde me puedes encontrar
  
 •:star: :camera: Perfil de **[Instagram](https://www.instagram.com/kevin_caceres_64/?hl=es-la)** :star:
 
