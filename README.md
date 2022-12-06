@@ -11,6 +11,6 @@
 
 •:star: :red_square: Youtube **[Channel](https://www.youtube.com/channel/UC-AcD1u2ORybpzY7aN1926Q)** :star:
 
-•:star: letter: E-mail **kjcaceres64@gmail.com - kjcaceres1@espe.edu.ec** :star:
+•:star: :mailbox E-mail **kjcaceres64@gmail.com - kjcaceres1@espe.edu.ec** :star:
 
 •:star: :chart: WhatsApp **(+593 99 888 1375)** :star:
